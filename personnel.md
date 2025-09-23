@@ -82,3 +82,4 @@ Joshua Lollar is a J.D. Candidate (class of 2025) at the KU School of Law. He is
 #### Grace Wyatt
 
 Grace is a J.D. Candidate (class of 2027) at the Univeristy of Kansas School of Law. Before attending law school, she earned her BA in Political Science from Kansas State University. Grace currently serves as the law school's representative to the Kansas Lawyers Assistance Program Board of Directors and as vice president to KU Law Balance & Well-Being, both organizations focused on providing mental health resources to the Kansas legal community. In her free time, Grace enjoys acrobatic arts, golfing, and oil painting. 
+
